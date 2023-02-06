@@ -1,1 +1,5 @@
 # Bot-TIcket-RP
+
+BOT SIMPLES DE CONFIGURAR 📨
+
+DOU SUPORTE 💫
